@@ -1,5 +1,5 @@
 - 👋 Salut, je suis @nicoptia
 - 👀 Je m'intéresse à l'informatique et l'électronique
-- 🌱 En ce moment, j'apprends le réseau et l'informatique
+- 🌱 En ce moment, j'apprends l'informatique
 - 💞️ Je recherche des entreprise sur Rennes métropole
-- 📫 Comment me contacter sur mon discord : nicoptia ou nicoptia#8777
+- 📫 Comment me contacter sur mon discord : nicoptia
