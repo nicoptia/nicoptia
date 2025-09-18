@@ -2,4 +2,4 @@
 - 👀 Je m'intéresse à l'informatique et l'électronique
 - 🌱 En ce moment, j'apprends l'informatique
 - 💞️ Je recherche des entreprise sur Rennes métropole
-- 📫 Comment me contacter sur mon discord : nicoptia
+- 📫 Vous pouvez me contacter sur discord : nicoptia
